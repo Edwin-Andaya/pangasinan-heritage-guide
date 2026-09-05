@@ -1,1 +1,1 @@
-# -pangasinan-heritage-guide
+# pangasinan-heritage-guide
